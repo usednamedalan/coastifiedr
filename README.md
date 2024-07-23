@@ -1,1 +1,1 @@
-![LightLogo](https://github.com/user-attachments/assets/8db2c7ee-1ab8-46fb-9f53-e03d24245d9a)
+![Logo](https://github.com/user-attachments/assets/29257081-a8f5-4412-ac20-74a0d6de78f5)
